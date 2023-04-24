@@ -1,2 +1,2 @@
 # snailracing.github.io
-Anything but nothing.
+https://discord.gg/y2ZQgNpFhw
